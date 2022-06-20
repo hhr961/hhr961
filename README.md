@@ -1,6 +1,6 @@
 - 👋 Hi, I am Ho Hong Rong.
 - 🏫 I am currently pursuing a degree in Economics and Management at Singapore Institute of Management University of London (SIM-UOL).
-- 💼 I am keen to have the opportunity to learn and grow professionally as an analyst. 
+- 💼 I am looking for opportunity to learn and grow professionally as an analyst. 
 - 📫 HHRRPP96@gmail.com
 
 <!---
